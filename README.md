@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @samanta04
+- 👀 I’m interested in Programming and Digital Art
+- 🌱 I’m currently learning UX design
